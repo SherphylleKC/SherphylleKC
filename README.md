@@ -9,4 +9,4 @@ Here are some things about me:
 - 💬 Ask me about ... --->
 - 📫 How to reach me: sherphylle.c@outlook.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I play computer games. Genres that I play are FPS, BattleRoyale, MMORPG, and Indie
+- ⚡ Fun fact: I play computer games such as FPS, BattleRoyale, MMORPG, and Indie
